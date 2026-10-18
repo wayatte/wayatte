@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **in BTS SIO**
 
-- 📫 How to reach me **jolyne@jojobizzare.ocean**
+- 📫 How to reach me **jolyne@jojobizarre.ocean**
 
 - ⚡ Fun fact **i like jolyne**
 
